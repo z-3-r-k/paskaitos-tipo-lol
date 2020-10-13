@@ -1,2 +1,2 @@
 # paskaitos-tipo-lol
-predictinam stockus xd
+predictinam stock marketa xd
